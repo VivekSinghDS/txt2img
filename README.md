@@ -10,6 +10,8 @@ Headline : Depression leading to suicide
 
 
 Suggestion : 
+
+
 <img width="574" alt="Screenshot 2021-10-26 at 12 44 36 PM" src="https://user-images.githubusercontent.com/92970332/138826990-8b11c877-80ac-4b07-bdbe-4c6597e5cad8.png">
 
 
